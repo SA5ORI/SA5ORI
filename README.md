@@ -6,7 +6,7 @@
 
  ♫ ─────────────────•⋅⊰༻♥༺⊱⋅•───────────────── ♫ 
            
- <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/013cc7cd-4320-4b72-a61a-b502be89f0f8" /> <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/22c0650b-03f2-4c44-b11c-f56aaa9d8baa" />  ​🇮​ ​🇱​​🇮​​🇰​​🇪​ ​🇦​​🇷​​🇹​​🇧​​🇷​​🇴​​🇸​ ^_^ <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/bf84e2b6-5880-44f3-b7ed-7b3894b9b2d1" /> <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/aa2b00f7-b370-47bd-83df-a3ee0f403ad2" />
+ <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/013cc7cd-4320-4b72-a61a-b502be89f0f8" /> <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/22c0650b-03f2-4c44-b11c-f56aaa9d8baa" />  i like artbros ^_^ <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/bf84e2b6-5880-44f3-b7ed-7b3894b9b2d1" /> <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/aa2b00f7-b370-47bd-83df-a3ee0f403ad2" />
 
 <img width="281" height="281" alt="image" src="https://github.com/user-attachments/assets/051e4f1e-0df7-404b-ba51-906d41c062b0" /> <img width="240" height="241" alt="image" src="https://github.com/user-attachments/assets/ef84949d-966b-4385-bacd-e77baf6417d5" /> 
 
