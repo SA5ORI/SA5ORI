@@ -22,6 +22,10 @@
 
 <img width="281" height="281" alt="image" src="https://github.com/user-attachments/assets/195f1a60-0f5f-479b-98fd-acd02ce26a49" /> 
 
-*sasodei and sasosaku DO NOT INTERACT. I see sasori & deidara as father-son/family/brothers so i will be referring to them as artbros. ♡
+*sasodei and sasosaku DO NOT INTERACT. I see sasori & deidara as father-son/family/brothers so i will be referring to them as artbros. ♡ .
 
+<img width="519" height="265" alt="image" src="https://github.com/user-attachments/assets/95754eae-38cc-4a9a-bb7d-e9308aeec40a" />
+
+
+don't interact if you think fiction doesn't affect reality. you are all delusional. proshippers don't interact. 
 
