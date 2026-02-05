@@ -1,7 +1,12 @@
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/037ddf79-b13b-47ac-916e-31a35cceb42c">
+</div>
 
-![tumblr_240ec320d0162e171142dc3773d37b93_a9f69e1e_400](https://github.com/user-attachments/assets/037ddf79-b13b-47ac-916e-31a35cceb42c)
- ![b203de6e1f7a17551a5aa91738963367](https://github.com/user-attachments/assets/4690d0af-6547-40cc-bd82-61b9e3858dfa) 
-  
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/4690d0af-6547-40cc-bd82-61b9e3858dfa">
+</div>
+
+ <div align="center">
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/60800a8f-819a-461a-b209-bb57bc349769" /> <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/6e02e467-0520-4677-a226-2fad910b64d2" /> <img width="203" height="150" alt="image" src="https://github.com/user-attachments/assets/c8f94461-9e99-4c87-b3d1-7cdd9c53e10e" /> <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/60800a8f-819a-461a-b209-bb57bc349769" />
 
  ♫ ─────────────────•⋅⊰༻♥༺⊱⋅•───────────────── ♫ 
