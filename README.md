@@ -9,7 +9,7 @@
  <div align="center">
  <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/60800a8f-819a-461a-b209-bb57bc349769" /> 
  
- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gmjbd6yo6qbm40uc3e38u81uh&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gmjbd6yo6qbm40uc3e38u81uh&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://open.spotify.com/intl-tr/track/42x2s9Uuu5fpd9PyPc4jzF?si=0543731c1f914b2b) 
    
 
  ♫ ─────────────────•⋅⊰༻♥༺⊱⋅•───────────────── ♫ 
