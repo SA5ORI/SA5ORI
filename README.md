@@ -14,7 +14,7 @@
 
   ─────────────────•⋅⊰༻♥༺⊱⋅•─────────────────  
 
- <img width="206" height="952" alt="image" src="https://github.com/user-attachments/assets/c50f44b7-b4d1-4e36-8a84-f72eee7c07cb" /> <img width="207" height="154" alt="image" src="https://github.com/user-attachments/assets/85faf287-06bc-450f-8ef1-1c02cc77c092" /> 
+ <img width="207" height="154" alt="image" src="https://github.com/user-attachments/assets/85faf287-06bc-450f-8ef1-1c02cc77c092" /> 
  
  <img width="419" height="165" alt="image" src="https://github.com/user-attachments/assets/95754eae-38cc-4a9a-bb7d-e9308aeec40a" />
 
@@ -24,7 +24,5 @@
 <div align="center">
 
 <img width="229" height="237" alt="image" src="https://github.com/user-attachments/assets/c016f5d7-2ca4-4d65-a37c-8cef6d6e47b5" />
-
-<img width="181" height="181" alt="image" src="https://github.com/user-attachments/assets/195f1a60-0f5f-479b-98fd-acd02ce26a49" />
 
 and god said let there be artbros
